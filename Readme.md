@@ -35,7 +35,7 @@ A classic British cake from the Bake Off judge, Paul Hollywood's lemon drizzle i
 
 5. Remove the cake from the tin and peel off the baking parchment. Sit the cake on a wire rack over a baking tray. Spread the white icing over the top. Pipe thin lines of the coloured icing across the width of the cake. Use a cocktail stick to drag through the lines in opposite directions to create a feathered effect. Leave to set before cutting into slices.
 
-> *Recipe from Good Food Magazine* [July, 2016](https://www.bbcgoodfood.com/search/recipes/date/1467327600)
+> **_Recipe from Good Food Magazine_** [July, 2016](https://www.bbcgoodfood.com/search/recipes/date/1467327600)
 
 [**Paul Hoolywood link**](https://www.bbcgoodfood.com/chef/paul-hollywood)
 
