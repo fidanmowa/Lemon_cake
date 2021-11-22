@@ -6,5 +6,3 @@
 * Use the text from data.txt file
 
 ## Output
-
-![Output](./output.png)
